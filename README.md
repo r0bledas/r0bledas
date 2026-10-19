@@ -2,7 +2,7 @@
  
 📍 Monterrey, MX | 🔧 Builder | Native Systems, Local AI & iOS
  
-✉️ [raudel@raudel.lat](mailto:raudel@raudel.lat) | 📸 [@r0bledas](https://instagram.com/r0bledas)
+✉️ [raudel@raudel.lat](mailto:raudel@raudel.lat) | IG: [@r0bledas](https://instagram.com/r0bledas)
  
 ---
  
